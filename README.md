@@ -1,1 +1,1 @@
-https://github.com/Hetbhavsar22/Het-Group-Tution-HGT-.git
+https://hetbhavsar22.github.io/Het-Group-Tution/
